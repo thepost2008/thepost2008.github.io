@@ -1,0 +1,8 @@
+- [https://thepost2008.github.io](https://thepost2008.github.io)
+- [https://www.quora.com/profile/Tien-Ban-2008](https://www.quora.com/profile/Tien-Ban-2008)
+- [https://www.reddit.com/user/Hot-Analysis3410/](https://www.reddit.com/user/Hot-Analysis3410/)
+- [https://yo.fan/tienban2008](https://yo.fan/tienban2008)
+- [https://yo.fan/giuseppanapolit](https://yo.fan/giuseppanapolit)
+- [https://medium.com/@tienban2008](https://medium.com/@tienban2008)
+- [https://medium.com/@colerchang](https://medium.com/@colerchang)
+- [https://thetimes2024.github.io](https://thetimes2024.github.io)
